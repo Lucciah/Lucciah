@@ -1,4 +1,4 @@
-### Olá, sou Lucina 😉
+### Olá, sou Luciana 😉
 
 - 🌱 Estudando Análise e Desenvolvimento de Sistemas
 - 👩‍🎓 Formada em Marketing
